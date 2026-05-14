@@ -1,4 +1,4 @@
-# 
+# secure Arbitrage Bot for meme coin sniper bot | contract-verification & dex-sniping offers the most advanced meme coin sniper bot, with contract-verification and dex-sniping.
 
 
 
